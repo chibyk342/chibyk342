@@ -9,9 +9,9 @@
 - 
 - 📫 How to reach me chibykvictor@gmail.com
 - 
-- 🤑 pronoun
+- 🤑 I am a Man
 - 
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I love playing games like football and long tenis
 
 <!---
 chibyk342/chibyk342 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
